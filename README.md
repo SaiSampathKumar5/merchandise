@@ -1,1 +1,1 @@
-**ook your merchandise here**
+**Book your merchandise here**
